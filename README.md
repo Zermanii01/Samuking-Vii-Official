@@ -23,7 +23,7 @@ I am Germany Yapasa, an IT student, digital creator, and technology enthusiast f
 - Digital Content Creation
 
 # Location
-Sirunki Enga Province🇵🇬
+Sirunki Enga Province
 
 SAMUKING VII OFFICIAL
 **Creativity Meets Technology.**
